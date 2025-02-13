@@ -93,8 +93,7 @@
 ---
 
 ## 🌍 Join the CS2 Cheat Community  
-
-💬 **Need Help?** Join our [Discord Server](#) for support & discussions.  
+ 
 📢 **Stay Updated!** Follow us for the latest security patches & features.  
 
 🚀 **Dominate CS2 like never before with the most powerful cheat available!** 🎯🔥💰  
